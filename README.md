@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: LinkedIn- https://www.linkedin.com/in/anshika-nagpal-0b95381a8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-- 😄 Pronouns: hard-working, smart, learner, listener
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I like sports as well
 
 <!---
